@@ -1,0 +1,1 @@
+French toast is a dish made of sliced bread soaked in eggs and typically milk, then fried.
